@@ -62,7 +62,7 @@ Some of the key measures:
 
 **Narendra Rangaiahgari**  
 Aspiring Data Analyst | Skilled in Power BI & SQL  
-📫 [LinkedIn](https://www.linkedin.com) 
+📫 [LinkedIn] www.linkedin.com/in/rangaiahgari-narendra 
 
 ---
 
